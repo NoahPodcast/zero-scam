@@ -1,1 +1,1 @@
-# chatgpt-discussion-discord-bot
+zero-scam
